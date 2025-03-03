@@ -5,8 +5,6 @@ Voici le lien De Mon Diapo Realiser : " https://www.canva.com/design/DAGF23DjWjE
 
 
 
+![image](https://github.com/user-attachments/assets/ca473800-97d9-48ee-a2f2-5a86ca80421e)
 
-
-
-
-![image](https://github.com/user-attachments/assets/46750ad3-6396-4e54-bdbc-7c2e8278cf9d)
+![image](https://github.com/user-attachments/assets/25cd586d-657c-45e5-a8fb-ede78f13ce4e)
